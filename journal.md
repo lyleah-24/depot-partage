@@ -1,2 +1,2 @@
-Hello les amis j'ai envie de me pendre yay !
+# Journal du binôme (version A)
 cbn bien reçu !
